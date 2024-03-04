@@ -32,5 +32,5 @@ Si vous êtes prêt à transformer vos idées en réalité et à prendre le vira
 - Email : info@afrogeek.fr
 - Téléphone : +237 6 95213290
 
-**Suivez-nous :** 🐦 [Twitter](#) | 📘 [Facebook](#) | 📸 [Instagram](#) | 🔗 [LinkedIn](#) | 🎵 [TikTok](#)
+**Suivez-nous :** 🐦 [Twitter](https://twitter.com/afrogeek237) | 📘 [Facebook](https://www.facebook.com/afrogeekcommunity) | 📸 [Instagram](https://www.instagram.com/afrogeekcommunity/) | 🔗 [LinkedIn](https://www.linkedin.com/company/afrogeek237/)  | 🎵 [TikTok](https://www.tiktok.com/@afrogeekcommunity)
 
